@@ -1,3 +1,5 @@
+## HELLO EVERYONE! ##
+
 - 👋 Hi, I’m @JoieCatz
 - 👀 I’m interested in being interested
 - 🌱 I’m currently learning the complexities of the real world
